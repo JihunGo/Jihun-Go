@@ -4,7 +4,7 @@
 
 ## **🎯Contacts**
 
-010-4372-3123 ·rhwlgnscjswo@daum.net · [[codemola 님의 블로그](https://codemola.tistory.com/))
+010-4372-0000 ·rhwlgnscjswo@daum.net · [[codemola 님의 블로그](https://codemola.tistory.com/))
 
 ## **지원 직무**
 
